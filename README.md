@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @taishiyamada99
+- 🌱 I’m currently learning NES programing.
+- 📫 How to reach me ... twitter @TaishiYamada99
